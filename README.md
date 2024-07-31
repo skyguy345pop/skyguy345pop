@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @skyguy345pop
+- 👀 I’m interested in game development mainly + other small projects
+- 🌱 I’m currently learning python, java, html, css, C++, blender
+- 💞️ I’m looking to collaborate on mainly games and small projects
+- 📫 How to reach me: email = kamehamedude@gmail.com
+- 😄 Pronouns: he/him (also attack/helicopter for the bros)
+- ⚡ Fun fact: i got lots of worthless certificates
